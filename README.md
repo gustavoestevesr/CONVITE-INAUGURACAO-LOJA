@@ -1,1 +1,1 @@
-# convite
+# CONVITE-INAUGURACAO-LOJA
